@@ -1,2 +1,2 @@
 # Landing-page-
-Web development internship @octanet.pvt.ltd
+Explore More Details 
